@@ -2,7 +2,7 @@
 - 👀 I’m interested in tech 
 - 🌱 I’m currently Working  as wll learning 
 - 💞️ I’m looking to collaborate on tech topic and project
-- 📫 Reach me at jashukr348@gmail.com
+- 📫 Reach me at jashukumar348@live.com
 
 <!---
 jashu348/jashu348 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
